@@ -1,1 +1,1 @@
-# Dcolonical Dogs
+# Dcolonial Dogs
